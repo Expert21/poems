@@ -9,12 +9,12 @@ Im always here for you. No matter what.
 
 I love you...
 
-I hate myself.
+I hate myself.  
 How could i let myself be distracted.
 
 i promise i love you. I love you with everything.. Im so sorry
 
-I made you feel something that i promised i never would...
+I made you feel something that i promised i never would...  
 **Heartbreak**
 
 
@@ -41,12 +41,12 @@ No you dont, i love You more
 
 Stop! omg i swear i cant get No time to myself. No time to my friends.
 
-No im done with this. I trusted you. I took a nap on your lap and you decided to go through my phone??
+No im done with this. I trusted you. I took a nap on your lap and you decided to go through my phone??  
 Dont you trust me?
 
-No Stop. Im done
-You made me feel something i never thought i would with you
-**Heartbreak**
+No Stop. Im done  
+You made me feel something i never thought i would with you  
+**Heartbreak**  
 
 
 Now look at me now, Im grown and proud   
